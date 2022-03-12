@@ -1,6 +1,6 @@
 ### 🥳𝙷𝙴𝙼𝙻𝙾🥳
 
-<img align='centre' src='https://te.legra.ph/file/976a9fce66b9c2833afe9.jpg' width='250"'>
+<img align='centre' src='https://te.legra.ph/file/d17dcf98ddb5720c44714.jpg' width='250"'>
 
 ### 😍𝙼𝚈 𝚂𝚃𝙰𝚃𝚂😍
 ![🌺𝚁𝙾𝚈𝙰𝙻 𝙺𝙸𝙽𝙶 𝙰𝙼𝙰𝙽 𝙶𝙸𝚃𝙷𝚄𝙱 𝚂𝚃𝙰𝚃𝚂🌺](https://github-readme-stats.vercel.app/api?username=DARKAMAN6&show_icons=true&theme=midnight-purple)
